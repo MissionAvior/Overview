@@ -1,3 +1,4 @@
+![thumbnail_image0](https://user-images.githubusercontent.com/109840969/180591983-18cac794-36e5-404e-bfeb-8b6ee958260c.jpg)
 # Overview 🪐
 Project Avior ($AVIOR) seeks to bring light upon the darkness that, at times, infests the space.
 
